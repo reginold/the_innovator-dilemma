@@ -1,1 +1,1 @@
-# the_innovator-s-dilemma
+# the_innovator-dilemma
